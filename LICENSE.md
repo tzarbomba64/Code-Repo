@@ -22,3 +22,5 @@ Permission is hereby granted, free of charge, to any person obtaining a copy of 
 
 For inquiries about commercial licensing, please contact: [zkwestmoreland11@gmail.com]
 
+Due to personal things, not all of this will be strictly enforced by me.
+
